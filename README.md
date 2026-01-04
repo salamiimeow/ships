@@ -1,4 +1,4 @@
-ʜᴇʟʟᴜᴠᴀ ʙᴏss ᢉ𐭩 verosika x barbie x sally (ɪɴᴛᴇʀᴄʜᴀɴɢᴇᴀʙʟᴇ),, sᴛᴇʟʟᴀ x ᴠᴇʀᴏsɪᴋᴀ,, mayberry x martha,, fizzmodeus,, fizzblitz (teen/young adult ver),, sᴛᴇʟʟᴀ x ᴠᴇʀᴏsɪᴋᴀ,, ᴀɴᴅʀᴇᴀʟᴘʜᴜs x ᴠᴀssᴀɢᴏ,, ᴠᴀssᴀɢᴏ x sᴛᴏʟᴀs,,
+ʜᴇʟʟᴜᴠᴀ ʙᴏss ᢉ𐭩 verosika x barbie x sally (ɪɴᴛᴇʀᴄʜᴀɴɢᴇᴀʙʟᴇ),, sᴛᴇʟʟᴀ x ᴠᴇʀᴏsɪᴋᴀ,, mayberry x martha,, fizzmodeus,, fizzblitz (teen/young adult ver),, ᴀɴᴅʀᴇᴀʟᴘʜᴜs x ᴠᴀssᴀɢᴏ,, ᴠᴀssᴀɢᴏ x sᴛᴏʟᴀs,,
 
 ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ ᢉ𐭩 lucilith (otp),, chaggie,, huskerdust (iwc),, staticmoth,, radiosilence,, radiorose,, ᴇᴍɪʟᴜᴛᴇ,, ɢᴜɪᴛᴀʀsᴘᴇᴀʀ (ɪᴡᴄ),, ᴇᴍɪʟʏ x ᴀʙᴇʟ,,
 
