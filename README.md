@@ -19,11 +19,11 @@ DNI : SHIPPING ANIMATRONICS AND INCLUDING THEIR SOULS WITHIN THE SHIP❌❌ ,, W
 ___________________
 .ೃ࿔ Cult of The Lamb
 ___________________
-INT : NariLamb (Bamsara comic has convinced me guys pls) ,, Yellow Cat x Leshy ,, Plimbo x Ratau (funny old men) ,,
+INT : NariLamb (Bamsara comic has convinced me guys pls) ,, Yellow Cat x Leshy ,, Plimbo x Ratau (heh funny old men) ,, Sozo x Shamura ,, Sozo x Helob ,, Heket x Women ,,
 
-IWC : Any bishops x Lamb ,, Lamb x Goat ,,
+IWC : Any of the bishops x Lamb ,, Lamb x Goat ,, Lamb x Fox ,, Ratau x Fox ,,
 
-DNI : Any of the bishops x Each other ,, Ratau x Lamb ,,
+DNI : Any of the bishops x Each other ,, Ratau x Lamb ,, 
 
 ___________________
 .ೃ࿔ Hazbin Hotel
