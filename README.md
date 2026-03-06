@@ -8,7 +8,7 @@ DNI : Sharpwolf (E:TM) ,, Ares x Hermes ,, Poseidon x Odysseus ,,
 
 
 .ೃ࿔ FNaF
-___________________
+_______________________
 INT : Toy Chica x Mangle ,, Fangle (TonyCryNight childhood. . . sigh) ,, 
 
 IWC : Willry (IWEC) ,, 
@@ -31,7 +31,7 @@ INT : Lucilith ,, Chaggi/e ,, Staticmoth ,, Radiorose (IWCUF) ,, Radiosilence (I
 
 IWC : Huskerdust ,, Staticbelle (DNIUF) ,, Guitarspear (IWEC) ,,
 
-DNI : Radioapple (DNIUF) ,, Charlastor ,, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,,
+DNI : Radioapple (DNIUF) ,, Charlastor ,, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,,
 
 
 .ೃ࿔ Helluva Boss
@@ -42,3 +42,20 @@ IWC : Striker x Stella (DNIUF) ,, Mammon x Glitz & Glam ,, Tex x Loona ,, Loona 
 
 DNI : Stolitz (DINUF) ,, Verosika x Blitz ,, Verosika x Tex ,, 
 
+
+.ೃ࿔ Cookie Run Kingdom
+___________________
+INT :
+
+IWC :
+
+DNI :
+
+
+.ೃ࿔  Identity V
+___________________
+INT :
+
+IWC :
+
+DNI :
