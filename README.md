@@ -30,9 +30,9 @@ ___________________
 ___________________
 INT : Lucilith ,, Chaggi/e ,, Staticmoth ,, Radiorose (IWCUF) ,, Radiosilence (IWCUF) ,, Angelicballet ,,
 
-IWC : Huskerdust ,, Staticbelle (DNIUF) ,, Guitarspear (IWEC) ,,
+IWC : Huskerdust ,, Staticbelle (DNIUF) ,, Guitarspear (IWEC) ,, Rarepairs (IWCUF) ,, 
 
-DNI : Radioapple (DNIUF) ,, Charlastor ,, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,,
+DNI : Radioapple (DNIUCF) ,, Charlastor (DNIUCF),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,,
 
 ___________________
 .ೃ࿔ Helluva Boss
