@@ -32,7 +32,7 @@ INT : Lucilith ,, Chaggi/e ,, Staticmoth ,, Radiorose (IWCUF) ,, Radiosilence (I
 
 IWC : Huskerdust ,, Staticbelle (DNIUF) ,, Guitarspear (IWEC) ,, Rarepairs (IWCUF) ,, 
 
-DNI : Radioapple (DNIUCF) ,, Charlastor (DNIUCF),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,,
+DNI : Radioapple (DNIUCF) ,, Radiobelle (DNIUCF),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, 
 
 ___________________
 .ೃ࿔ Helluva Boss
@@ -46,11 +46,11 @@ DNI : Stolitz (DINUF) ,, Verosika x Blitz ,, Verosika x Tex ,,
 ___________________
 .ೃ࿔ Cookie Run Kingdom
 ___________________
-INT :
+INT : Purelily ,, Silentlily ,, Eternalberry ,, Shadowvanilla (non-sexual thanks..) ,, Eldersalt ,, ShadowSugar ,, Eternalspice ,,
 
-IWC :
+IWC :  ,, 
 
-DNI :
+DNI : Burningcheese ,, Mystic Cacao (DNIUF) ,,
 
 ___________________
 .ೃ࿔  Identity V
