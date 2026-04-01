@@ -50,7 +50,7 @@ INT : Purelily ,, Silentlily ,, Eternalberry ,, Shadowvanilla (non-sexual thanks
 
 IWC :  ,, 
 
-DNI : Burningcheese ,, Mystic Cacao (DNIUF) ,,
+DNI : Burningcheese ,, Mysticcacao (DNIUF) ,,
 
 ___________________
 .ೃ࿔  Identity V
