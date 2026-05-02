@@ -28,7 +28,7 @@ DNI : Any of the bishops x Each other ,, Ratau x Lamb ,,
 ___________________
 .ೃ࿔ Hazbin Hotel
 ___________________
-INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,,
+INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,, Rosilith ,,
 
 IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb (just not a fav) ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, HolyBlades (non-sexual/non-romantic) ,, Charlute ,, 
 
