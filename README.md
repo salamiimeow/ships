@@ -37,9 +37,9 @@ DNI : Radioapple (DNIUCF) ,, Radiobelle (Unless Eclispo/gen),, Vaggi/e x men ,, 
 ___________________
 .ೃ࿔ Helluva Boss
 ___________________
-INT : **Fizzmodeus (OTP)** ,, Verosika x Barbie | Sally | Stella ,, Fizzblitz (teens-yrs-only) ,, Beelzebub x Tex ,, Masmodeus (funny) ,, 
+INT : **Fizzmodeus (OTP)** ,, Verbie ,, SallieMayday ,, Stellosika ,, Barnowl ,, Featherpop ,, Stellbie ,, SallieWire ,, Fizzblitz (teens-yrs-only) ,, Beelzebub x Tex ,, Masmodeus (funny) ,, Vassalphus ,, Stolago ,, Stolandre (heh funny) ,,
 
-IWC : Striker x Stella (DNIUF) ,, Mammon x Glitz & Glam ,, Tex x Loona ,, Loona x Beelzebub ,, 
+IWC : Striker x Stella (DNIUF) ,, Mammon x Glitz & Glam ,, Tex x Loona ,, Loona x Beelzebub ,, StaticShark ,, Statichorns ,,
 
 DNI : Stolitz ,, Verosika x Blitz ,, Verosika x Tex ,, 
 
