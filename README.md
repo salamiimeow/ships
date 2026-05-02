@@ -10,7 +10,7 @@ DNI : Sharpwolf (E:TM) ,, Ares x Hermes ,, Poseidon x Odysseus ,,
 ___________________
 .ೃ࿔ FNaF
 _______________________
-INT : Toy Chica x Mangle ,, Fangle (TonyCryNight childhood. . . sigh) ,, 
+INT : Toy Chica x Mangle ,, Fangle (TonyCryNight childhood. . . sigh) ,, Fredbear x Springbonnie ,, 
 
 IWC : Willry (IWEC) ,, 
 
@@ -28,16 +28,16 @@ DNI : Any of the bishops x Each other ,, Ratau x Lamb ,,
 ___________________
 .ೃ࿔ Hazbin Hotel
 ___________________
-INT : Lucilith (OTP) ,, Chaggi/e (OTP) ,, Staticmoth ,, Radiorose ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,,
+INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,,
 
-IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb (just not a fav) ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, 
+IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb (just not a fav) ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, HolyBlades (non-sexual/non-romantic) ,, Charlute ,, 
 
-DNI : Radioapple (DNIUCF) ,, Radiobelle (Unless Eclispo/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,,
+DNI : Radioapple (DNIUCF) ,, Radiobelle (Unless Eclispo/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
 
 ___________________
 .ೃ࿔ Helluva Boss
 ___________________
-INT : Fizzmodeus (OTP) ,, Verosika x Barbie | Sally ,, Fizzblitz (teens-yrs-only) ,, Beelzebub x Tex ,,
+INT : **Fizzmodeus (OTP)** ,, Verosika x Barbie | Sally | Stella ,, Fizzblitz (teens-yrs-only) ,, Beelzebub x Tex ,, Masmodeus (funny) ,, 
 
 IWC : Striker x Stella (DNIUF) ,, Mammon x Glitz & Glam ,, Tex x Loona ,, Loona x Beelzebub ,, 
 
