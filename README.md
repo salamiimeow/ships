@@ -10,7 +10,7 @@ DNI : Sharpwolf (E:TM) ,, Ares x Hermes ,, Poseidon x Odysseus ,,
 ___________________
 .ೃ࿔ FNaF
 _______________________
-INT : Toy Chica x Mangle ,, Fangle (TonyCryNight childhood. . . sigh) ,, Fredbear x Springbonnie ,, 
+INT : Toy Chica x Mangle ,, Fangle (TonyCryNight childhood. . . sigh) ,, Fredbear x Springbonnie ,, Funtime Frexy (THAT ONE SERIES PLS. IM NOT CRAZY.) ,,
 
 IWC : Willry (IWEC) ,, 
 
