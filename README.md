@@ -28,11 +28,11 @@ DNI : Any of the bishops x Each other ,, Ratau x Lamb ,,
 ___________________
 .ೃ࿔ Hazbin Hotel
 ___________________
-INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,, Rosilith ,,
+INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose (platonic) ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,, Rosilith ,,
 
 IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb (just not a fav) ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, HolyBlades (non-sexual/non-romantic) ,, Charlute ,, 
 
-DNI : Radioapple (only if non-srs) ,, Radiobelle (Unless Eclispo/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
+DNI : Radioapple (unless non-srs) ,, Radiobelle (Unless Eclispo/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
 
 ___________________
 .ೃ࿔ Helluva Boss
