@@ -32,7 +32,7 @@ INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose (plato
 
 IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb (just not a fav) ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, HolyBlades (non-sexual/non-romantic) ,, Charlute ,, 
 
-DNI : Radioapple (unless non-srs) ,, Radiobelle (Unless Eclispo/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
+DNI : Radioapple (unless non-srs or friends) ,, Radiobelle (Unless Eclispo or Ashoka/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
 
 ___________________
 .ೃ࿔ Helluva Boss
