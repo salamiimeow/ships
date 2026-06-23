@@ -1,7 +1,7 @@
 ___________________
 .ೃ࿔ E:TM | Greek Mythos
 ___________________
-INT : Odypen ,, Circpen ,, Hermes x Circe ,, Aphrodite x Ares ,, Aphrodite x Hephaestus ,,  
+INT : Odypen ,, Circpen ,, Hermes x Circe ,, Aphrodite x Ares ,, Aphrodite x Hephaestus ,, Nyx x Persephone ,, 
 
 IWC : Achilles x Patroclus (TSOA❌ , Iliad✅) ,, TeleCirce ,,
 
@@ -28,11 +28,11 @@ DNI : Any of the bishops x Each other ,, Ratau x Lamb ,,
 ___________________
 .ೃ࿔ Hazbin Hotel
 ___________________
-INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose (platonic) ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple (funny heh) ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,, Rosilith ,,
+INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose (platonic) ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,, Rosilith ,,
 
 IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb (just not a fav) ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, HolyBlades (non-sexual/non-romantic) ,, Charlute ,, 
 
-DNI : Radioapple (unless non-srs or friends) ,, Radiobelle (Unless Eclispo or Ashoka/gen),, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
+DNI : Radioapple (unless non-srs or friends) ,, Radiobelle (Unless Eclispo or Ashoka/gen),, Radiodust (Unless close friends or non-srs) ,, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Val x Alastor ,, Alastor x sexual/romantic ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, SeraSpear ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, 
 
 ___________________
 .ೃ࿔ Helluva Boss
