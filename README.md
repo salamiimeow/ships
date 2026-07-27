@@ -1,62 +1,13 @@
-___________________
-.ೃ࿔ E:TM | Greek Mythos
-___________________
-INT : Odypen ,, Circpen ,, Hermes x Circe ,, Aphrodite x Ares ,, Aphrodite x Hephaestus ,, Nyx x Persephone ,, 
 
-IWC : Achilles x Patroclus (TSOA❌ , Iliad✅) ,, TeleCirce ,,
-
-DNI : Sharpwolf (E:TM) ,, Ares x Hermes ,, Poseidon x Odysseus ,, 
-
-___________________
-.ೃ࿔ FNaF
-_______________________
-INT : Toy Chica x Mangle ,, Fangle (TonyCryNight childhood. . . sigh) ,, Fredbear x Springbonnie ,, Funtime Frexy (THAT ONE SERIES PLS. IM NOT CRAZY.) ,,
-
-IWC : Willry (IWEC) ,, 
-
-DNI : SHIPPING ANIMATRONICS AND INCLUDING THEIR SOULS WITHIN THE SHIP❌❌ ,, William x Any minor | child of his (like tf. . .) ,,
-
-___________________
-.ೃ࿔ Cult of The Lamb
-___________________
-INT : **NariLamb (OTP)** (Bamsara comic has convinced me guys pls) ,, Yellow Cat x Leshy ,, Plimbo x Ratau (heh funny old men) ,, Sozo x Shamura ,, Sozo x Helob ,, Heket x Women ,,
-
-IWC : Any of the bishops x Lamb ,, Lamb x Goat ,, Lamb x Fox ,, Ratau x Fox ,,
-
-DNI : Any of the bishops x Each other ,, Ratau x Lamb ,, 
 
 ___________________
 .ೃ࿔ Hazbin Hotel
 ___________________
-INT : **Lucilith (OTP)** ,, **Chaggi/e (OTP)** ,, Staticmoth ,, Radiorose (platonic) ,, Radiosilence (one-sided only),, Angelicballet ,, Charlimy ,, Fashionbelle ,, Fallendoll ,, Zestmilla ,, Velissa ,, Staticapple ,, Serapherd ,, Fashionbomb ,, Fallenbomb ,, Owlmoth (**CRACKSHIP**. that one comic...) ,, Rosilith ,, Polyeden ,, Royalhalo ,, Polyeden ,,
+🌳 : ɪɴᴛ ➛ **ʟᴜᴄɪʟɪᴛʜ (ᴏᴛᴘ)**, ᴄʜᴀɢɢɪ, ʀᴏʏᴀʟʜᴀʟᴏ, ꜰᴀʟʟᴇɴᴡɪɴɢꜱ, ᴄʜᴀʀʟᴜᴛᴇ, ᴇᴍɪʟᴜᴛᴇ, ᴇᴍɪʟᴇᴛᴛᴇ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ, ꜱᴛᴀᴛɪᴄᴀᴘᴘʟᴇ, ꜰᴀʟʟᴇɴᴅᴏʟʟ, ᴠᴇʟɪꜱꜱᴀ, ꜰᴀꜱʜɪᴏɴꜱᴘᴇᴀʀ, ʀᴀᴅɪᴏꜱɪʟᴇɴᴄᴇ, ʀᴀᴅɪᴏʀᴏꜱᴇ, ʀᴏꜱɪʟɪᴛʜ, ᴇᴠᴇʟɪᴛʜ, ᴘᴏʟʏᴇᴅᴇɴ, ᴀɴɢᴇʟɪᴄʙᴀʟʟᴇᴛ, ᴢᴇꜱᴛᴍɪʟʟᴀ, ʙᴀxꜱᴛᴀʙʙᴇʀ, ʙᴀxᴛɪᴏᴜꜱ
 
-IWC : Huskerdust ,, Staticbelle (Unless Eclispo/gen) ,, Guitarspear (IWEC) ,, Snakebomb ,, Emilute ,, Fallenwings ,, Adamsapple ,, Applesnake ,, Baxtious ,, HolyBlades (non-sexual/non-romantic) ,, Charlute ,, SeraSpear ,,
+🐍 : ɪᴡᴄ ➛ ᴀᴅᴀᴍꜱᴀᴘᴘʟᴇ, ᴀᴘᴘʟᴇᴍᴇᴅɪᴀ, ɢᴜɪᴛᴀʀꜱᴘᴇᴀʀ, ᴀᴘᴘʟᴇꜱɴᴀᴋᴇ, ꜱɴᴀᴋᴇʙᴏᴍʙ, ʀᴀᴅɪᴏꜱᴛᴀᴛɪᴄ (ʀᴏᴍᴀɴᴛɪᴄ ᴏɴʟʏ), ꜱᴛᴀᴛɪᴄʙᴇʟʟᴇ, ʜᴏʟʏʙʟᴀᴅᴇ
 
-DNI : Radioapple (Unless close friends or non-srs) ,, Radiobelle (Unless Eclispo or Ashoka/gen),, Radiodust (Unless close friends or non-srs) ,, Vaggi/e x men ,, Velvette x men ,, Polyvees ,, Radiostatic ,, Valdust ,, Radiomoth (sexual ver) ,, Alastor x sexual ships ,, Radiojoy ,, Guitarprincess ,, Angelicradio ,, GuitarHalo ,, HolyGates ,, Verovel (Unless Eclispo/gen) ,, Veroval (Unless Eclispo/gen) ,, Staticdust ,, Appledust ,, Murdermedia (Unless Jack or close friends) ,,
-Sera x men ,,
+🍎 : ᴅɴɪ ➛ ʀᴀᴅɪᴏᴀᴘᴘʟᴇ, ᴠᴀʟᴀɴɢᴇʟ, ɢᴜɪᴛᴀʀᴘʀɪɴᴄᴇꜱꜱ, ɢᴜɪᴛᴀʀʜᴀʟᴏ, ᴠᴀɢɢɪ | ᴠᴇʟᴠᴇᴛᴛᴇ | ꜱᴇʀᴀ x ᴍᴇɴ, ʜᴏʟʏɢᴀᴛᴇꜱ, ᴍᴏᴛʜꜱʜᴇᴇᴘ, ꜱᴛᴀᴛɪᴄꜱʜᴇᴇᴘ, ꜱᴛᴀᴛɪᴄʜᴀʟᴏ, ꜱᴛᴀᴛɪᴄɢᴜɪᴛᴀʀ, ꜱᴛᴀᴛɪᴄᴅᴜꜱᴛ, ʀᴀᴅɪᴏᴅᴜꜱᴛ, ʀᴀᴅɪᴏʙᴇʟʟᴇ, ʟɪʟɪᴛʜ | ʟᴜᴄɪꜰᴇʀ x ᴄʜᴀʀʟɪᴇ, ꜱᴇʀᴀ x ᴇᴍɪʟʏ, ʀᴀᴅɪᴏᴊᴏʏ
+
+**ᴘ.ꜱ ᴍʏ ᴅɴɪ ᴡɪʟʟ ꜰʟᴜᴄᴛᴜᴀᴛᴇ ɪꜰ ʏᴏᴜ'ʀᴇ ᴍʏ ꜰʀɪᴇɴᴅ, ᴛʜɪꜱ ɪꜱ ꜰᴏʀ ꜱᴛʀᴀɴɢᴇʀꜱ.**
 ___________________
-.ೃ࿔ Helluva Boss
-___________________
-INT : **Fizzmodeus (OTP)** ,, Verbie ,, SallieMayday ,, Stellosika ,, Barnowl ,, Featherpop ,, Stellbie ,, SallieWire ,, Fizzblitz (teens-yrs-only) ,, Beelzebub x Tex ,, Masmodeus (funny) ,, Vassalphus ,, Stolago ,, Stolandre (heh funny) ,, Marthberry ,, 
-
-IWC : Striker x Stella (DNIUF) ,, Mammon x Glitz & Glam ,, Tex x Loona ,, Loona x Beelzebub ,, StaticShark ,, Statichorns ,,
-
-DNI : Stolitz ,, Verosika x Blitz ,, Verosika x Tex ,, 
-
-___________________
-.ೃ࿔ Cookie Run Kingdom
-___________________
-INT : Purelily ,, Silentlily ,, Eternalberry ,, Shadowvanilla (non-sexual thanks..) ,, Eldersalt ,, ShadowSugar ,, Eternalspice ,,
-
-IWC :  ,, 
-
-DNI : Burningcheese ,, Mysticcacao (DNIUF) ,,
-
-___________________
-.ೃ࿔  Identity V
-___________________
-INT :
-
-IWC :
-
-DNI :
