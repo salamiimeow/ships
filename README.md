@@ -1,4 +1,3 @@
-<img width="2340" height="1080" alt="Screenshot_20260824_183040_Cookie Run Kingdom" src="https://github.com/user-attachments/assets/a0c758b4-e729-4661-9222-4aceb12ec44b" />
 
 ___________________
 .ೃ࿔❤️ ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ
